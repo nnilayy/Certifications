@@ -1,2 +1,2 @@
 # Certifications
-Above are all the certificates i have attained.
+Above are all the certificates that i have attained.
